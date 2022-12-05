@@ -6,13 +6,13 @@
 Total Proxies: 15
 ㅤ
 
-Last updated on 10/21/22
+Last updated on 12/04/22
 ㅤ
 
 Proxy Links:
 ㅤ
 
-1) [amogdollavious](https://amogdollavious.quandale14.repl.co))
+1) [amogdollavious](https://amogdollavious.quandale14.repl.co)
 
 
 
