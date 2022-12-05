@@ -12,7 +12,7 @@ Last updated on 10/21/22
 Proxy Links:
 ㅤ
 
-1) [amogdollavious]([https://quizizz-com.herokuapp.com](https://amogdollavious.quandale14.repl.co))
+1) [amogdollavious](https://amogdollavious.quandale14.repl.co))
 
 
 
